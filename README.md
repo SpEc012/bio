@@ -14,4 +14,8 @@ Need a cool bio site for yourself? Look no further! I can craft one for you at j
 2. Sit back and relax while I create your personalized bio site.
 3. Enjoy showcasing yourself to the world in style!
 
+
+##My Personal Example Site 
+https://spec012.github.io/bio-site/
+
 Let's get started! 💻✨
