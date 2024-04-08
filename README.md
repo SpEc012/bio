@@ -1,11 +1,11 @@
 # Welcome to My Bio Site! 💫
 
-Need a cool bio site for yourself? Look no further! I can craft one for you at just $2! 😎
+Need a cool bio site for yourself? Look no further! I can craft one for you at just $5! 😎
 
 ## What I Offer:
 
 - **Simplicity:** Clean and straightforward design.
-- **Affordability:** Just $2 for a custom bio site!
+- **Affordability:** Just $5 for a custom bio site!
 - **Quick Delivery:** Get your site up and running in no time.
 
 ## How to Get Started:
